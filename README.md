@@ -1,2 +1,6 @@
-# hi-earth
-bla bla bla, vgm moet ik hier iets typen dus dan doe ik dat maar. Groetjes
+nieuwe text want dat moet joe jeo 
+
+
+sldkgjslkdfjs
+
+nu komt er nieuwe text bij opnieuw
